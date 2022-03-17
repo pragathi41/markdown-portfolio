@@ -1,1 +1,5 @@
-Replace this with a list of your favorite things.
+# H1 ❤️	:heart:
+👍	:+1:
+😄	:smile:
+✨	:sparkles:
+🎉
